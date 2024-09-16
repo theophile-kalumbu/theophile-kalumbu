@@ -6,6 +6,8 @@
 - 😄 Pronouns: Théo, T.O
 - 🔄 I see feedback as a gift—don't hesitate to share, even if it's constructive criticism
 - ⚡ Fun fact: The first time I tried skiing was in New Zealand, even though I grew up in France!
+- ⚽ Hobbies: I am a football fan and loves playing it
+- 🎵 Music: I love afro carribean music and cuban salsa. I also enjoy UK Garage, Grime and more recently South African Amapiano. 
 
 <!---
 theophile-kalumbu/theophile-kalumbu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
